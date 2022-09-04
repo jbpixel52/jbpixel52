@@ -11,7 +11,6 @@
 
 - ⚡ Fun fact **I know more about the x-men than computers.**
 
-<h3 align="left">Connect with me:</h3>
 <p align="left">
 </p>
 
